@@ -1,1 +1,2 @@
-# DL_homework_6-
+# NickVeld.github.io
+Personal page, he-he
